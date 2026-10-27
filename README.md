@@ -1,2 +1,9 @@
 # app-dev
 My first repository
+
+#HAIII I WISH PUSH SIMPLE HTML FILE
+
+  #MY FAVORITE SERIES IS THE WALKING DEAD S1 TO S9
+
+
+  
